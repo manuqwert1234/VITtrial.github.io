@@ -1,1 +1,0 @@
-# VITtrial.github.io
